@@ -1,7 +1,7 @@
 - 👋 Hi, I’m bánh bò 
 - 👀 I’m interested in myseft
 - 🌱 I’m currently learning in GĐ
-- 💞️ I'm best flo:))))
+- 💞️
 - 📫 Call me 0943575120
 - 😄 fak u
 
